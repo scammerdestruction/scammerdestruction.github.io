@@ -1,0 +1,1 @@
+# scammerdestruction.github.io
